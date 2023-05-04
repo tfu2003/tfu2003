@@ -15,4 +15,4 @@
 * Gaming (Valorant, Stardew Valley, Minecraft)
 * Watching TV series (currently watching From, Oshi No Ko, and I Got a Cheat Skill in Another World)
 
-Feel free to connect with me through my [LinkedIn](linkedin.com/in/tony-fu)! I'm always willing to meet new people!
+Feel free to connect with me through my [LinkedIn](https://linkedin.com/in/tony-fu)! I'm always willing to meet new people!
