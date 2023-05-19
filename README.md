@@ -13,6 +13,6 @@
 * Practicing piano
 * Going to the gym
 * Gaming (Valorant, Stardew Valley, Minecraft)
-* Watching TV series (currently watching From, Oshi No Ko, I Got a Cheat Skill in Another World, and Summer Time Rendering)
+* Watching TV series (currently watching From, Oshi No Ko, and I Got a Cheat Skill in Another World)
 
 Feel free to connect with me through my [LinkedIn](https://linkedin.com/in/tony-fu)! I'm always willing to meet new people!
