@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Tony</h1>
-<h3 align="center">Incoming third year Computer Science student at the University of British Columbia</h3>
+<h3 align="center">Incoming third year Computer Science student at the University of British Columbia!</h3>
 
 <h3> :grinning: Currently interested in: </h3> 
 
