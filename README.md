@@ -9,7 +9,7 @@
 
 <h3> :relaxed: My hobbies: </h3>
 
-* Playing soccer
+* Playing soccer and spikeball
 * Practicing piano
 * Going to the gym
 * Gaming (Valorant, Stardew Valley, Minecraft)
