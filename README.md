@@ -12,7 +12,7 @@
 * Playing soccer and spikeball
 * Practicing piano
 * Going to the gym
-* Gaming (Valorant, Stardew Valley, Minecraft)
-* Watching TV series (currently watching Oshi No Ko, I Got a Cheat Skill in Another World, and Violet Evergarden)
+* Gaming (Valorant, Stardew Valley, Hearthstone)
+* Watching TV series (currently watching Outer Banks, The Summer I Turned Pretty, and Violet Evergarden)
 
 Feel free to connect with me through my [LinkedIn](https://linkedin.com/in/tony-fu)! I'm always willing to meet new people!
