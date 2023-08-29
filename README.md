@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Tony</h1>
-<h3 align="center">Incoming third year Computer Science student at the University of British Columbia!</h3>
+<h3 align="center">Incoming third year Computer Science student at The University of British Columbia!</h3>
 
 <h3> :grinning: Currently interested in: </h3> 
 
@@ -11,8 +11,8 @@
 
 * Playing soccer and spikeball
 * Practicing piano
-* Going to the gym
+* Gymming and hiking
 * Gaming (Valorant, Stardew Valley, Hearthstone)
-* Watching TV series (currently watching Outer Banks, The Summer I Turned Pretty, and Violet Evergarden)
+* Watching TV series (currently watching Outer Banks, Ozark, and Violet Evergarden)
 
 Feel free to connect with me through my [LinkedIn](https://linkedin.com/in/tony-fu)! I'm always willing to meet new people!
