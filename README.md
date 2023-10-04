@@ -13,6 +13,6 @@
 * Practicing piano
 * Gymming and hiking
 * Gaming (Valorant, Stardew Valley, and Hearthstone)
-* Watching TV series (currently watching Outer Banks, Ozark, and Violet Evergarden)
+* Watching TV series (currently watching Outer Banks, Ozark, and Gen V)
 
 Feel free to connect with me through my [LinkedIn](https://linkedin.com/in/tony-fu)! I'm always willing to meet new people!
