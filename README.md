@@ -11,7 +11,7 @@
 
 * Playing soccer and Spikeball
 * Practicing piano
-* Gymming and hiking
+* Gyming and hiking
 * Gaming (Valorant, Stardew Valley, and Hearthstone)
 * Watching TV series (currently watching Outer Banks, Ozark, and Gen V)
 
