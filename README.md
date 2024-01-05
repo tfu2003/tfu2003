@@ -9,10 +9,10 @@
 
 <h3> My hobbies: </h3>
 
-* Playing soccer and Spikeball
+* Playing soccer and spikeball
 * Practicing piano
 * Gyming and hiking
-* Gaming (Valorant, Stardew Valley, and Hearthstone)
+* Gaming (Valorant, Jump King, Lethal Company, and Hearthstone)
 * Watching TV series (currently watching Outer Banks, Ozark, and Gen V)
 
 Feel free to connect with me through my [LinkedIn](https://linkedin.com/in/tony-fu)! I'm always willing to meet new people!
