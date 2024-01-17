@@ -13,6 +13,6 @@
 * Practicing piano
 * Gyming and hiking
 * Gaming (Valorant, Jump King, Lethal Company, and Hearthstone)
-* Watching TV series (currently watching Outer Banks, Ozark, and Gen V)
+* Watching TV series (currently watching Outer Banks, Ozark, and Solo Leveling)
 
 Feel free to connect with me through my [LinkedIn](https://linkedin.com/in/tony-fu)! I'm always willing to meet new people!
